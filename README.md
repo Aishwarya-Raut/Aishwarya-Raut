@@ -43,7 +43,7 @@
 
 ## 🌐 **Let’s Connect**  
 ✨ Let’s create, collaborate, or discuss all things **data analytics**!  
-- 💼 **LinkedIn**: [Aishwarya Raut] (https://www.linkedin.com/in/aishwarya-raut-1b327b24b?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BrQ9mymv7SyOK9Ho80rYRSw%3D%3D)  
+- 💼 **LinkedIn**: [Aishwarya Raut] (https://www.linkedin.com/in/aishwarya-d-raut/)  
 - 📧 **Email**: (mailto:aishwaryadsraut@gmail.com)  
 
 ---
